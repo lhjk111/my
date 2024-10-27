@@ -1,1 +1,1 @@
-https://huya.com/test
+https://huya.com/test1
